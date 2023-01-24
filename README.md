@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on nothing
 - 🤔 I’m looking for help with nothing
 - 💬 Ask me about anything
-- 📫 How to reach me: dont
+- 📫 How to reach me: Instagram: Ltsjustbrandon
 - ⚡ Fun fact: blue cheese is moldy
 
 ![PlanetlikePhoto](https://user-images.githubusercontent.com/113062106/199381688-fc4c624f-0c22-4f34-86ea-fd053d7db9c7.jpg)
